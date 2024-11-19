@@ -2,9 +2,9 @@
 
 hace 05 minutos — Pelisplus Ver La sustancia película Completa en linea en español. ver gratis en línea [Ver La sustancia] 2024 en español latino | Disfruta de la Película Completa de La sustancia en HD con Audio Español y Latino Subtitulado.
 
-VER AHORA ➥ [b][La sustancia (2024) Pelicula Completa Online en Español](https://t.co/f1MqsGLeKp)[/b]
+VER AHORA ➥ [La sustancia (2024) Pelicula Completa Online en Español](https://t.co/f1MqsGLeKp)
 
-DESCARGAR ➥ [b][La sustancia (2024) Pelicula Completa Online en Español](https://t.co/f1MqsGLeKp)[/b]
+DESCARGAR ➥ [La sustancia (2024) Pelicula Completa Online en Español](https://t.co/f1MqsGLeKp)
 
 <p dir="auto"><a href="https://t.co/f1MqsGLeKp" title="1080p" rel="nofollow"><img src="https://camo.githubusercontent.com/e77d383337f352112ed1c7d3ceb2b7e09c82c4d2a374d360222ff6c789a55060/68747470733a2f2f692e696d6775722e636f6d2f6a684e476f45742e676966" style="max-width: 100%;"></a></p>
 
